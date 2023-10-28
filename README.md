@@ -1,1 +1,1 @@
-# Mindmap
+ReadMe at least for this entry There Is Nothing To See It Is Only I, 0cast.com The Mindmap Repo for Playing with yWork yEd Live Diagram Tools Integrated with Chat Yep That One, Ver 3 as I am too broke to afford the mlnthly peanuts for Ver 4 which sucks, but I shall live on.... Enjoy or Not, This Is Just For Testing, ths sorry... nothing to see and nothing of value... Love ya, Toodles. 
